@@ -19,16 +19,16 @@
 </br>
 
 <font color="purple"><h2>El 7 de marzo de 2009, con 17 años, debuta con el primer equipo en la victoria (2-1) ante el Oeste, en un partido del Campeonato Paulista. Un día antes, había firmado su primer contrato como profesional hasta 2014.</h2></font>
-<br>
 
-</br>
+
+
 <font color="purple"><h2>
 Estas son algunas Estadisticas de Neymar jr
-<br>
 
-</br>Balones de oro:0
-<br>
-</br>Botas de oro:0
+
+Balones de oro:0
+
+Botas de oro:0
 <br>
 </br>
 Mejor temporada: 2015/2016 Barcelona
